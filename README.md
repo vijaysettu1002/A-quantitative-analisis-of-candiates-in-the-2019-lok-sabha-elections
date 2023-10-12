@@ -1,0 +1,1 @@
+# A-quantitative-analisis-of-candiates-in-the-2019-lok-sabha-elections
